@@ -1,0 +1,1 @@
+# 2020lcwlchess960cup
